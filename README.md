@@ -1,1 +1,1 @@
-# Welcome to [https://wylin94.github.io/](https://github.com/wylin94/Green-Arrow/wiki/MVP-List)
+# Welcome to [https://wylin94.github.io/](https://wylin94.github.io/)
